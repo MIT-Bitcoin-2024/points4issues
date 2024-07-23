@@ -20,3 +20,6 @@ closing 47
 
 48
 52
+
+Jackie O 7-23-24 4:27pm 
+10 sats for whoever makes this entire seneence bold
