@@ -20,3 +20,5 @@ closing 47
 
 48
 52
+
+Jackie needs to display a 7th person for HW or she cant go out to play 
