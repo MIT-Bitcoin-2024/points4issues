@@ -15,7 +15,7 @@ new issue solving
 qe
 fixed3
 
-Enrique WAS HERE
+Enrique WAS HEREl
 closing 47
 
 48
